@@ -4,4 +4,4 @@
 — Francis Bacon, Novum Organum, I.95 (1620)
 
 By continuing to read, you acknowledge the following entirely unreasonable conditions:
-This is not advice. Opinions are present. Facts may appear unannounced. Sarcasm might be in circulation. No emotional airbags deploy here. Sudden exposure to irony may occur, Outrage is self-service.
+Opinions are present - Facts may appear unannounced - Sarcasm might be in circulation - No emotional airbags deploy here - Sudden exposure to irony may occur - Outrage is self-service.
